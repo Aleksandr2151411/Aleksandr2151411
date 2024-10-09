@@ -2,7 +2,7 @@
 - 👀 I’m interested in cats
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on beer
-- 📫 How to reach me go to forest
+- 📫 How to reach me: go to forest
 - 😄 Pronouns: nick/her
 - ⚡ Fun fact: mickey mouse hates juice
 

@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Aleksandr2151411
 - 👀 I’m interested in cats
-- 🌱 I’m currently learning english
+- 🌱 I’m currently learning Serbian
 - 💞️ I’m looking to collaborate on beer
 - 📫 How to reach me: go to forest
 - 😄 Pronouns: nick/her
